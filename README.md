@@ -6,5 +6,5 @@
 
 [Prototypes](http://ingahampton.github.io/Narrative-and-Storytelling/prototypes.html)
 
-[Style-tile & other](https://www.flickr.com/photos/128425558@N08/albums/72157662835589830)
+[Style tile & other](https://www.flickr.com/photos/128425558@N08/albums/72157662835589830)
 
